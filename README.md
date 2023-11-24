@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @77woo
+- 👀 I’m interested in svt
+- 🌱 I’m currently loving🐯🐱🦌🐶🐻‍❄️🌈
+- 📫 How to reach me ... nowhere
